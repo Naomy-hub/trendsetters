@@ -1,2 +1,2 @@
 # trendsetters
-How people and companies are setting trends by being sustainable 
+How is your company setting a trend? Shifting Sustainability from a policy to a plan of action. 
