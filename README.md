@@ -1,2 +1,3 @@
 # trendsetters
-How is your company setting a trend? Shifting Sustainability from a policy to a plan of action. 
+Shifting Sustainability from a Policy to a Plan of Action.
+How is your company setting a trend in Sustainability?
